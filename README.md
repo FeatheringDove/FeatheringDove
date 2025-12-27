@@ -2,7 +2,7 @@ ABOUT ME
 
 Im 15 . > 18+ DNIUF
 
-INT: Dino nerds, Greek mythos, helpols, horror fans, rarepairs (if not problematic), animes, radiosilence, staticmoth, if your not in my dni!
+INT: Dino nerds, Greek mythos, helpols, horror fans, rarepairs (if not problematic), animes, radiosilence, staticmoth, vees, if your not in my dni!
 
 IWC: Val fans (DNI if ur weird), hazbin&helluva fndm, dandys world, radiostatic, E:TM fndm/fans, mouthwashing fndm.
 
@@ -22,8 +22,8 @@ KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (A
 
 
 
+<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/903a1a98-ddfc-4dde-90b3-3e7dd9b85117" />
 
-![images](https://github.com/user-attachments/assets/25d2c94d-705b-40ed-883c-f7d72355f926)
 
 <!--
 **FeatheringDove/FeatheringDove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
