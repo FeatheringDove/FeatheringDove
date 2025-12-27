@@ -15,27 +15,23 @@ KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (A
 
 
 
-
-
-
-
-
-
-
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/903a1a98-ddfc-4dde-90b3-3e7dd9b85117" />
 
 
-<!--
-**FeatheringDove/FeatheringDove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+BYI
 
-Here are some ideas to get you started:
+C+H is okay! just not when I have dni or dniuf/p in my name.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Im rude as a joke, if you don't like that, I dont suggest interacting.
+
+I often make sexual jokes, again if uncomfy dont int.
+
+Be careful of what you say, Im really senstive, epsecially ragebait (which I fall for sigh)
+
+If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usually.
+
+
+
+
+<img width="292" height="173" alt="image" src="https://github.com/user-attachments/assets/ad867fb9-01f8-45e2-afbe-ad4c880f3d40" />
+
