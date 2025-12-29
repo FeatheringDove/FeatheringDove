@@ -15,7 +15,8 @@ KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (A
 
 
 
-<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/903a1a98-ddfc-4dde-90b3-3e7dd9b85117" />
+<img width="224" height="225" alt="image" src="https://github.com/user-attachments/assets/a5cd5e36-deb0-4303-8049-7a01a3e2f243" />
+
 
 
 BYI
@@ -33,5 +34,7 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 
 
 
-<img width="292" height="173" alt="image" src="https://github.com/user-attachments/assets/ad867fb9-01f8-45e2-afbe-ad4c880f3d40" />
+<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/8d0b35ff-38bb-464c-b430-bfa6054ca600" />
+
+
 
