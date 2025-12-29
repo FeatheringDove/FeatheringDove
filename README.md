@@ -16,8 +16,8 @@ KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (A
 **WILL UPDATE!**
 
 
+<img width="230" height="219" alt="image" src="https://github.com/user-attachments/assets/aca50249-61ca-46d8-93db-19de3ee5a5d7" />
 
-<img width="224" height="225" alt="image" src="https://github.com/user-attachments/assets/a5cd5e36-deb0-4303-8049-7a01a3e2f243" />
 
 
 
