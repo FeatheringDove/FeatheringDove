@@ -40,7 +40,3 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 
 
 **" We already found love in Hell, the rest is easy, baby ! "**
-
-SHIPS ;
-https://docs.google.com/document/d/1k6q-QvpjjEiS57Utiu_GFs1do-V_PO7fGVOojW53G5k/edit?tab=t.0
-
