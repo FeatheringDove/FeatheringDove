@@ -40,3 +40,5 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 
 
 **" We already found love in Hell, the rest is easy, baby ! "**
+
+(Check other resp for ships!)
