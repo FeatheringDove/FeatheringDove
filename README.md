@@ -1,3 +1,5 @@
+**" 'Cause anyone who finds love in Hell can do anything, baby ! ~ "***
+
 ABOUT ME
 
 Im 15 . > 18+ DNIUF
@@ -37,4 +39,5 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 <img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/8d0b35ff-38bb-464c-b430-bfa6054ca600" />
 
 
+**" We already found love in Hell, the rest is easy, baby ! "**
 
