@@ -23,7 +23,7 @@ COMF CHARS: Indominus Rex (JW), Alan grant (JP), Eddie (ST), Psyche (GM), Athena
 
 
 
-🏨 BYI
+BYI
 
 C+H is okay! just not when I have dni or dniuf/p in my name.
 
