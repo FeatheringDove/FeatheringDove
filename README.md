@@ -12,13 +12,11 @@ DNI: Valdust, sharpwolf, proshippers, racists, polyvees, comshippers, EX-friends
 
 KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (Alnst), Furina (Genshin), Abel (Hazbin), Niffty (Hazbin), Millie (Trigun), Cyn (MD), Lucifer (Hazbin), Verosika (Helluva), Jinx (Arcane), Richie (IT)
 
-I worship; Athena, Dionysus, Lilith and Hera!
-
 
 **WILL UPDATE!**
 
 
-<img width="230" height="219" alt="image" src="https://github.com/user-attachments/assets/aca50249-61ca-46d8-93db-19de3ee5a5d7" />
+![hazbin-hotel-charlie-morningstar](https://github.com/user-attachments/assets/ad7b2b9a-a3d9-46bb-bea8-1afd15e38b1d)
 
 
 
@@ -38,7 +36,7 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 
 
 
-<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/8d0b35ff-38bb-464c-b430-bfa6054ca600" />
+![staticbelle-vox](https://github.com/user-attachments/assets/93b8e71d-1ce4-47da-b51f-0c7105026a97)
 
 
 **" We already found love in Hell, the rest is easy, baby ! "**
