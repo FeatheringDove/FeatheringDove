@@ -12,7 +12,7 @@ DNI: Valdust, sharpwolf, proshippers, racists, polyvees, comshippers, EX-friends
 
 KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (Alnst), Furina (Genshin), Abel (Hazbin), Niffty (Hazbin), Millie (Trigun), Cyn (MD), Lucifer (Hazbin), Verosika (Helluva), Jinx (Arcane), Richie (IT)
 
-COMF CHARS: Indominus Rex (JW), Alan grant (JP), Eddie (ST), Psyche (GM), Athena (GM), Mizi (Alnst), Misato (NGE), Artemis (HADES).
+I worship; Athena, Dionysus, Lilith and Hera!
 
 
 **WILL UPDATE!**
