@@ -4,7 +4,7 @@ ABOUT ME
 
 Im 15 . > 18+ DNIUF
 
-INT: Dino nerds, Greek mythos, helpols, horror fans, rarepairs (if not problematic), animes, radiosilence, staticmoth, vees, if your not in my dni!
+INT: Dino nerds, Greek mythos, helpols, horror fans, rarepairs (if not problematic), animes, staticbelle, staticmoth, vees, if your not in my dni!
 
 IWC: Val fans (DNI if ur weird), hazbin&helluva fndm, dandys world, radiostatic, E:TM fndm/fans, mouthwashing fndm.
 
