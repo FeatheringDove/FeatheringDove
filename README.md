@@ -10,8 +10,7 @@ IWC: Val fans (DNI if ur weird), hazbin&helluva fndm, dandys world, radiostatic,
 
 DNI: Valdust, sharpwolf, proshippers, racists, polyvees, comshippers, EX-friends (for obv reasons), politics, basic stuff etc etc....
 
-KINS: Asuka (NGE), Alastor (Hazbin), Charlie (Hazbin), Stolas (Helluva), Luka (Alnst), Furina (Genshin), Abel (Hazbin), Niffty (Hazbin), Millie (Trigun), Cyn (MD), Lucifer (Hazbin), Verosika (Helluva), Jinx (Arcane), Richie (IT)
-
+FICTKINS: Asuka (NGE), Charlie (HAZBIN), Octavia (HB), Jinx (ARCANE), Luka (ALNST).
 
 **WILL UPDATE!**
 
