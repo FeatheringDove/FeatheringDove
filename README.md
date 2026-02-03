@@ -15,7 +15,7 @@ FICTKINS: Asuka (NGE), Charlie (HAZBIN), Octavia (HB), Jinx (ARCANE), Luka (ALNS
 **WILL UPDATE!**
 
 
-![hazbin-hotel-charlie-morningstar](https://github.com/user-attachments/assets/ad7b2b9a-a3d9-46bb-bea8-1afd15e38b1d)
+<img width="431" height="431" alt="image" src="https://github.com/user-attachments/assets/f511cd8c-68ff-4674-857a-0a6b5fbbb125" />
 
 
 
@@ -35,7 +35,7 @@ If your a roleplayer, PLEASE don't try to rp with me, I only rp with friends usu
 
 
 
-![staticbelle-vox](https://github.com/user-attachments/assets/93b8e71d-1ce4-47da-b51f-0c7105026a97)
+<img width="603" height="414" alt="image" src="https://github.com/user-attachments/assets/b556fafe-5ceb-4f53-997b-1e3166839358" />
 
 
 **" We already found love in Hell, the rest is easy, baby ! "**
