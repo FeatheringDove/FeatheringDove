@@ -1,4 +1,4 @@
-**" 'Cause anyone who finds love in Hell can do anything, baby ! ~ "***
+**" 'Cause anyone who finds love in Hell can do anything, baby ! ~ "**
 
 ABOUT ME
 
