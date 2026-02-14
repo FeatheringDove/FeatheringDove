@@ -10,7 +10,7 @@ IWC: Val fans (DNI if ur weird), hazbin&helluva fndm, dandys world, radiostatic,
 
 DNI: Valdust, sharpwolf, proshippers, racists, polyvees, comshippers, EX-friends (for obv reasons), politics, basic stuff etc etc....
 
-FICTKINS: Asuka (NGE), Charlie (HAZBIN), Octavia (HB), Jinx (ARCANE), Luka (ALNST), Misa (DN), Eulalie (NVMR).
+FICTKINS: Asuka (NGE), Charlie (HAZBIN), Octavia (HB), Jinx (ARCANE), Misa (DN), Eulalie (NVMR).
 
 **WILL UPDATE!**
 
