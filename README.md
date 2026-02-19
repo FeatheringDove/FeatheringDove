@@ -16,7 +16,7 @@
 
 *DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple , Val fans that SUPPORT his actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , will add more !*
 
-*FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Sua , Jinx !***
+*FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Sua , Jinx , Lily Lovebraids !***
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
