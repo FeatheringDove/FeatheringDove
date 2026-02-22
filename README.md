@@ -1,7 +1,8 @@
-" Oh, it's a *pleasure* to finally meet you, **Princess**. "
+" Think about the future, ***Val***, don't let *success break up the band*. "
+
+<img width="736" height="501" alt="image" src="https://github.com/user-attachments/assets/86bb15df-720f-4738-8141-b0338bddfb84" />
 
 
-<img width="535" height="535" alt="image" src="https://github.com/user-attachments/assets/d2fc6b91-4fee-4406-bdb4-22bca61b1839" />
 
 
 
@@ -21,8 +22,9 @@
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="705" height="535" alt="image" src="https://github.com/user-attachments/assets/2dfac446-36d7-4eaa-b534-213b4552fd78" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b44f85e7-e853-4c64-b61b-6e249a42962e" />
 
 
 
-" I **thou**gh*t* you *stood* with us! You're *working* for the man!!! **The TV MAN!!!** "
+
+"  *And if he* glows any *brighter*, will he see me **anymore**? "
